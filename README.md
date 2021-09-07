@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about interesting facts.
 - 📫 How to reach me: You can reach on +1-6605280382 and mail mpravallika906@gmail.com
 - 😄 Pronouns: female
-- ⚡ Fun fact: I am a funny
+- ⚡ Fun fact: I am a Funny
